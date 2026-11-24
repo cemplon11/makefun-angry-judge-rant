@@ -10,7 +10,7 @@ the flashing red light, the public shaming, the teenager with the secret
 forgiveness code, and the punchline — you work there now, unpaid, and you are
 already suspected of theft.
 
-Competition: https://make.fun/c/u-riidzhsn-angry-judge-the-short-rant-contest-b9f46046
+Competition: https://make.fun/bounty/u-riidzhsn-angry-judge-the-short-rant-contest-b9f46046
 
 ## Run
 
